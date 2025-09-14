@@ -14,3 +14,10 @@ Plus tard dans le semestre, **si votre équipe porte un manque de performance à
 Mettez votre réponse (environ 300 mots) ci-dessous:
 
 ---
+### Mon expérience avec un mollasson durant mon cheminement universitaire à l'ÉTS
+
+Lors d'un projet universitaire en équipe de cinq personnes, nous nous étions divisés en deux sous-groupes : une équipe de trois et une équipe de deux pour mieux répartir le travail. Heureusement, j'étais dans l'équipe de deux, tandis que le mollasson se trouvait dans l'équipe de trois. Même si je soupçonnais qu'il ne contribuait pas adéquatement, mes autres coéquipiers m'ont rassuré que tout se déroulait bien. Puisque je ne travaillais pas directement avec lui, j'ai fait confiance à mes coéquipiers et nous avons terminé le projet sans aucun problème.
+
+Cependant, mon expérience avec cette personne ne s'est pas arrêtée là. Pour un autre projet, celui-ci en équipe de deux, me fiant à ce que mes coéquipiers m'avaient dit sur son travail, j'ai décidé de faire équipe avec lui. Par la suite, j'ai réalisé que cette décision était une erreur. Il a attendu la dernière minute pour commencer à travailler et la qualité de son travail était inacceptable. J'ai donc dû refaire le projet seul au complet pour remettre un bon travail à temps.
+
+Cette expérience m'a fait réaliser l'importance des conseils du texte concernant le fait de refléter plutôt que d'absorber. J'aurais dû établir des attentes claires dès le départ et confronter le problème immédiatement plutôt que de compenser pour son manque de travail. Malheureusement, j'ai réalisé ces leçons trop tard dans la session et les travaux étaient déjà remis pour prendre des actions envers ce coéquipier. Dans le futur, je me contente de ne plus travailler avec cette personne et de ne plus croire sur parole mes coéquipiers puisque parfois les coéquipiers sont amis avec le mollasson et cela ne les dérange pas d'absorber plus de travail pour faire passer un ami.
